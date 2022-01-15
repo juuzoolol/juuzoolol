@@ -1,0 +1,1 @@
+Yooo je suis juuzoo je suis passioné d'info et surtout de bidouillage j'ai pour projet de transformer mon hp pavillon en hackintosh 100 % fonctionnable suivez ici mon aventure , et je mettrais tout se que j'utilise en ressource ici ;) 
